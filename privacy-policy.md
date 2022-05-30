@@ -52,8 +52,13 @@ We may update our Privacy Policy from time to time. Thus, you are advised to rev
 
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us. 
 
+
+
 Contact Information: 
 
+
 Email: contact@ismailarmaster.com
+
 phone: +255623966118
+
 Website: htts://ismailarmaster.com
